@@ -3,6 +3,6 @@
 - 🌱 I’m currently UX/UI Designer
 - 🤔 I’m looking for help with JS
 - 💬 Ask me about UX/UI
-- 📫 How to reach me: Design.rennan@gmail.com
+- 📫 How to reach me: renangomesux@outlook.com
 
 
